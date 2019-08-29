@@ -1,4 +1,6 @@
 MY TWITTER FLUTTERWAVE POST LINK BELOW
 https://twitter.com/EwereDarell/status/1166446330350395393?s=19
 
-I COULD NOT POST ON LUCID
+
+HERE IS MY LUCID POST LINK
+https://lucid.blog/allgnets/post/the-startdotng-pre-intership-so-far-abc
